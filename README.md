@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jing Ting.
+- 🌱 Interested in improving.
+- 🎯 Getting it right the first time everytime.
+- 📫 Keep in touch with wjt1206@hotmail.com
+- 💞️ Take care and stay safe.
